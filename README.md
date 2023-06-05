@@ -1,1 +1,1 @@
-- 👋 sup, I’m @y0rmung
+- sup i’m @y0rmung
